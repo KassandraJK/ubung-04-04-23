@@ -2,5 +2,5 @@
 
 Kassandra J. K.
 
-Friedemann Dancer
+Friedemann Dancer  
 Dimitri B
