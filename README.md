@@ -6,3 +6,4 @@ Friedemann Dancer
 Dimitri B
 
 - Katze :)
+- :banana:
